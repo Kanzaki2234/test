@@ -2,4 +2,4 @@
 
 Dear visitor,
 
-congratulations o
+congratulations on finding 
