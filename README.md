@@ -2,4 +2,4 @@
 
 Dear visitor,
 
-congratulations on finding this repos
+congratulations on finding this repository. It 
