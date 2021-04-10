@@ -7,4 +7,4 @@ question &mdash *Why I did what I did?*.
 
 I considered simply spilling it out, but it doesn't feel right. I don't wish to
 reveal that answer to everyone, just to a specific type of individual, someone
-sp
+special, som
