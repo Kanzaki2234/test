@@ -9,4 +9,4 @@ I considered simply spilling it out, but it doesn't feel right. I don't wish to
 reveal that answer to everyone, just to a specific type of individual, someone
 special, someone like me...
 
-Many sleepless nights w
+Many sleepless nights were spent 
