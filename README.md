@@ -10,4 +10,4 @@ reveal that answer to everyone, just to a specific type of individual, someone
 special, someone like me...
 
 Many sleepless nights were spent trying to figure out how exactly to do this,
-especially because it seems to be impossible, it seems li
+especially because it seems to be impossible, it seems like it need
