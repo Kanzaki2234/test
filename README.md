@@ -13,4 +13,5 @@ Many sleepless nights were spent trying to figure out how exactly to do this,
 especially because it seems to be impossible, it seems like it needs magic to
 work.
 
-Magic... like that thing Dumbledore did with the philosopher's 
+Magic... like that thing Dumbledore did with the philosopher's stone...
+
