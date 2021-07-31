@@ -16,4 +16,4 @@ work.
 Magic... like that thing Dumbledore did with the philosopher's stone...
 
 ```text
-You see, only one who wanted to find the stone - find it, but n
+You see, only one who wanted to find the stone - find it, but not use it -
