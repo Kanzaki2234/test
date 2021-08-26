@@ -18,4 +18,4 @@ Magic... like that thing Dumbledore did with the philosopher's stone...
 ```text
 You see, only one who wanted to find the stone - find it, but not use it -
 would be able to get it, otherwise they'd just see themselves making gold or
-dri
+drinking Elix
