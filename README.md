@@ -25,4 +25,4 @@ Anyways, this is my attempt at that spell. And, to be honest, I belive its
 among my **best contributions**.
 
 If you're wondering whether you have the chance of cracking it, consider the
-famous *Hacker Manifesto*. If 
+famous *Hacker Manifesto*. If these line
