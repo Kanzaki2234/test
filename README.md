@@ -26,4 +26,6 @@ among my **best contributions**.
 
 If you're wondering whether you have the chance of cracking it, consider the
 famous *Hacker Manifesto*. If these lines are close to your heart, we might be
-al
+alike...
+
+##
