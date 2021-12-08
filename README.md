@@ -28,4 +28,4 @@ If you're wondering whether you have the chance of cracking it, consider the
 famous *Hacker Manifesto*. If these lines are close to your heart, we might be
 alike...
 
-## 1986 Hack
+## 1986 Hacker Manifest
