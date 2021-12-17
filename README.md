@@ -31,4 +31,6 @@ alike...
 ## 1986 Hacker Manifesto
 
 
-            ==Phrack Inc.=
+            ==Phrack Inc.==
+
+       
