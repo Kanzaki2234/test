@@ -33,4 +33,4 @@ alike...
 
             ==Phrack Inc.==
 
-                    Volume One, Issue 
+                    Volume One, Issue 7, Phile 3
