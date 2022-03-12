@@ -36,4 +36,5 @@ alike...
                     Volume One, Issue 7, Phile 3 of 10
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
-The following was written shortly after my a
+The following was written shortly after my arrest...
+
