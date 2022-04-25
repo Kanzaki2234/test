@@ -40,4 +40,5 @@ The following was written shortly after my arrest...
 
                        \/\The Conscience of a Hacker/\/\/
 
-                                
+                                      by
+
