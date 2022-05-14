@@ -44,4 +44,4 @@ The following was written shortly after my arrest...
 
                                +++The Mentor+++
 
-                      
+                          Writte
