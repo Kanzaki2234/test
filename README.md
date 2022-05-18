@@ -44,4 +44,4 @@ The following was written shortly after my arrest...
 
                                +++The Mentor+++
 
-                          Written on Januar
+                          Written on January 8, 1986
