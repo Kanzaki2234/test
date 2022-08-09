@@ -47,4 +47,5 @@ The following was written shortly after my arrest...
                           Written on January 8, 1986
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
-        Another one got caught today, it's all over the papers.  "Teena
+        Another one got caught today, it's all over the papers.  "Teenager
+Arrest
