@@ -48,4 +48,4 @@ The following was written shortly after my arrest...
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
         Another one got caught today, it's all over the papers.  "Teenager
-Arrested in Computer Crime
+Arrested in Computer Crime Scandal", 
