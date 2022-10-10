@@ -52,4 +52,4 @@ Arrested in Computer Crime Scandal", "Hacker Arrested after Bank Tampering"...
         Damn kids.  They're all alike.
 
         But did you, in your three-piece psychology and 1950's technobrain,
-ever
+ever take a lo
