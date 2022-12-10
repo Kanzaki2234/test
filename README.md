@@ -52,4 +52,5 @@ Arrested in Computer Crime Scandal", "Hacker Arrested after Bank Tampering"...
         Damn kids.  They're all alike.
 
         But did you, in your three-piece psychology and 1950's technobrain,
-ever take a look behind the eyes of the hacker?  Did you ever won
+ever take a look behind the eyes of the hacker?  Did you ever wonder what
+m
