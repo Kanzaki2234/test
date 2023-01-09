@@ -54,4 +54,4 @@ Arrested in Computer Crime Scandal", "Hacker Arrested after Bank Tampering"...
         But did you, in your three-piece psychology and 1950's technobrain,
 ever take a look behind the eyes of the hacker?  Did you ever wonder what
 made him tick, what forces shaped him, what may have molded him?
-        I am a hacker, ente
+        I am a hacker, enter my world
