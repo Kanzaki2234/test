@@ -56,4 +56,4 @@ ever take a look behind the eyes of the hacker?  Did you ever wonder what
 made him tick, what forces shaped him, what may have molded him?
         I am a hacker, enter my world...
         Mine is a world that begins with school... I'm smarter than most of
-th
+the other ki
