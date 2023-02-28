@@ -59,4 +59,4 @@ made him tick, what forces shaped him, what may have molded him?
 the other kids, this crap they teach us bores me...
         Damn underachiever.  They're all alike.
 
-  
+        I'm 
