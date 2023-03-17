@@ -60,4 +60,4 @@ the other kids, this crap they teach us bores me...
         Damn underachiever.  They're all alike.
 
         I'm in junior high or high school.  I've listened to teachers explain
-for the fifteen
+for the fifteenth time how
