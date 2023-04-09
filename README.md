@@ -61,4 +61,4 @@ the other kids, this crap they teach us bores me...
 
         I'm in junior high or high school.  I've listened to teachers explain
 for the fifteenth time how to reduce a fraction.  I understand it.  "No, Ms.
-Smith, I 
+Smith, I didn't show
