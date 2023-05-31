@@ -64,4 +64,4 @@ for the fifteenth time how to reduce a fraction.  I understand it.  "No, Ms.
 Smith, I didn't show my work.  I did it in my head..."
         Damn kid.  Probably copied it.  They're all alike.
 
-        I made a discovery today.  I found a co
+        I made a discovery today.  I found a computer.  W
