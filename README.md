@@ -65,4 +65,5 @@ Smith, I didn't show my work.  I did it in my head..."
         Damn kid.  Probably copied it.  They're all alike.
 
         I made a discovery today.  I found a computer.  Wait a second, this is
-cool.  It does what I want it to.  If it makes a mistake, it's becaus
+cool.  It does what I want it to.  If it makes a mistake, it's because I
+screwe
