@@ -67,4 +67,5 @@ Smith, I didn't show my work.  I did it in my head..."
         I made a discovery today.  I found a computer.  Wait a second, this is
 cool.  It does what I want it to.  If it makes a mistake, it's because I
 screwed it up.  Not because it doesn't like me...
-                Or feels threatened b
+                Or feels threatened by me...
+   
