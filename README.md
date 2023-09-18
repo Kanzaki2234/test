@@ -72,4 +72,5 @@ screwed it up.  Not because it doesn't like me...
                 Or doesn't like teaching and shouldn't be here...
         Damn kid.  All he does is play games.  They're all alike.
 
-        And then it happened... a door opened to a world... rushing 
+        And then it happened... a door opened to a world... rushing through
+th
