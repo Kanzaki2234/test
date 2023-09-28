@@ -73,4 +73,4 @@ screwed it up.  Not because it doesn't like me...
         Damn kid.  All he does is play games.  They're all alike.
 
         And then it happened... a door opened to a world... rushing through
-the phone line like her
+the phone line like heroin throug
