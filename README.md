@@ -76,4 +76,4 @@ screwed it up.  Not because it doesn't like me...
 the phone line like heroin through an addict's veins, an electronic pulse is
 sent out, a refuge from the day-to-day incompetencies is sought... a board is
 found.
-   
+        "This
