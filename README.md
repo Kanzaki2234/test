@@ -77,4 +77,4 @@ the phone line like heroin through an addict's veins, an electronic pulse is
 sent out, a refuge from the day-to-day incompetencies is sought... a board is
 found.
         "This is it... this is where I belong..."
-        I know everyone here... even if I've never met
+        I know everyone here... even if I've never met them, nev
