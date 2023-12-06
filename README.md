@@ -78,4 +78,4 @@ sent out, a refuge from the day-to-day incompetencies is sought... a board is
 found.
         "This is it... this is where I belong..."
         I know everyone here... even if I've never met them, never talked to
-them, ma
+them, may never he
