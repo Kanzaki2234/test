@@ -79,4 +79,4 @@ found.
         "This is it... this is where I belong..."
         I know everyone here... even if I've never met them, never talked to
 them, may never hear from them again... I know you all...
-        Damn kid.  Tying up the phone line again.  
+        Damn kid.  Tying up the phone line again.  They're al
