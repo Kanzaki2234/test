@@ -81,4 +81,5 @@ found.
 them, may never hear from them again... I know you all...
         Damn kid.  Tying up the phone line again.  They're all alike...
 
-        You bet your ass we're all alike... we've been spoon-fed baby
+        You bet your ass we're all alike... we've been spoon-fed baby food at
+sc
