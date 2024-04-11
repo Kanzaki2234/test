@@ -85,4 +85,5 @@ them, may never hear from them again... I know you all...
 school when we hungered for steak... the bits of meat that you did let slip
 through were pre-chewed and tasteless.  We've been dominated by sadists, or
 ignored by the apathetic.  The few that had something to teach found us will-
-ing pupils, but those few are like drops of water in the
+ing pupils, but those few are like drops of water in the desert.
+
