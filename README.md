@@ -87,4 +87,5 @@ through were pre-chewed and tasteless.  We've been dominated by sadists, or
 ignored by the apathetic.  The few that had something to teach found us will-
 ing pupils, but those few are like drops of water in the desert.
 
-        This is our world now... the world of the electron and the swit
+        This is our world now... the world of the electron and the switch, the
+be
