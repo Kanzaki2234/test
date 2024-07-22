@@ -91,4 +91,4 @@ ing pupils, but those few are like drops of water in the desert.
 beauty of the baud.  We make use of a service already existing without paying
 for what could be dirt-cheap if it wasn't run by profiteering gluttons, and
 you call us criminals.  We explore... and you call us criminals.  We seek
-after knowledge... and you call us criminals.  We exist wi
+after knowledge... and you call us criminals.  We exist without skin
