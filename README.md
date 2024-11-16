@@ -97,4 +97,4 @@ You build atomic bombs, you wage wars, you murder, cheat, and lie to us
 and try to make us believe it's for our own good, yet we're the criminals.
 
         Yes, I am a criminal.  My crime is that of curiosity.  My crime is
-that of judging people by what they say and think, 
+that of judging people by what they say and think, not what t
