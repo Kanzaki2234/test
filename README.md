@@ -101,4 +101,5 @@ that of judging people by what they say and think, not what they look like.
 My crime is that of outsmarting you, something that you will never forgive me
 for.
 
-        I am a hacker, and this is my manifesto.  You may stop this indiv
+        I am a hacker, and this is my manifesto.  You may stop this individual,
+but
